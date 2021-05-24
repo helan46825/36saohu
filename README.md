@@ -3,4 +3,4 @@ all resources are carefully selected, and the opportunity cannot be missed 👇
 ## ⭐️ 👉 domain：https://36saohu.com
 ## ⭐️ 👉 Easy to remember： 36saohu.com = 36saohu
 
-![photo_2021-04-28_03-28-46](https://i.postimg.cc/zBTh89ps/28b682970a76df67da.gif)
+![photo_2021-04-28_03-28-46](https://i.postimg.cc/qBbJg1YS/39e7e47b6d221cb85e.gif)
